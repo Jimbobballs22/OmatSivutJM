@@ -1,2 +1,0 @@
-# OmatSivutJM
-Omat sivut!
